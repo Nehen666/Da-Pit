@@ -1,5 +1,6 @@
 # Da-Pit
-for a lifetime
+for a day or a lifetime:
+
 Bide the Wiccan Law ye must, 
 In perfect love, in perfect trust, 
 Eight words the Wiccan Rede fulfill: 
